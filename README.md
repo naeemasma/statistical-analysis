@@ -1,4 +1,4 @@
-we want to study barriers that impede university students from eating healthily and answer the following questions: 
+We want to study barriers that impede university students from eating healthily and answer the following questions: 
 
 - Are the students in health science degrees more conscious of a balanced diet?
 
